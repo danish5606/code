@@ -1,1 +1,0 @@
-Danish is nice person
